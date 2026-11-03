@@ -7,5 +7,5 @@ Perhaps... this is a personal blog.
 - Like reading miscellaneous books (Seems to have a lot of thoughts about life...)📖
 - like eating snacks to sustain my vital signs❌
 ***
-Je te souhaite tout le bonheur du monde.
+Je te souhaite tout le bonheur du monde.❤️
 
